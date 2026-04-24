@@ -1,0 +1,1 @@
+Hi, I’m Lily Treadway, a Finance major at the University of South Florida interested in business, financial planning, and investment analysis. I aim to become a financial advisor, seek Tampa internships, and am building skills in Python and Excel. I plan to attend graduate school to grow in finance.
